@@ -5,3 +5,9 @@ A CS:GO cheat that will need to be updated to the Panorama Update and beyond.
 
 The Return
 NIVIRO - The Return
+
+Up 'n Away (Extended Mix)
+ItaloBrothers - Up 'n Away
+
+Have You Ever Been Mellow (Nightcore Edit)
+Tune Up! - Nightcore, Vol. 2
